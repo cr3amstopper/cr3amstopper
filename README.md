@@ -7,3 +7,8 @@
 
 [straw](https://ryssee.straw.page)
 [ata](https://cr3amstopper.atabook.org)
+
+
+“    sign ata + straw ! ๑⁠
+
+Int w caution ! socially awkward and sometimes late replies . I'm new to anime (kinda) feel free to give me some recs !! ⁠—⁠☆
